@@ -2,7 +2,8 @@
 - 🐳 EIEer in NJU🐋
 - 🌱 Communication Engineering, Image Processing
 - 💞️ Totally in love with study
-- 📫 wenli2369@gmail.com 📭in NJU:211180206@smail.nju.edu.c
+- 📫 wenli2369@gmail.com
+- 📭in NJU:211180206@smail.nju.edu.c
 - 😄 😆😆😆
 - ⚡ 😈😈😈
 
